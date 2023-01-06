@@ -1,4 +1,4 @@
-Business developer, Python developer
+Teacher, H5P student, Business developer, Python developer
 
 <!---
 jobskolhi/jobskolhi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
